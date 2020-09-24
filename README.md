@@ -1,3 +1,4 @@
 # pppoomz349.github.io
 My Page
-wat dee kub
+Hello I'm Poom
+สวัสดีครับ ผมชื่อ อภิวัฒน์
